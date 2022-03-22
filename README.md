@@ -4,7 +4,7 @@
 
 My name is Aline, I'm 30 years old. I live in Canoas/RS, with my wife and our pet Orihime, a sweet cat. I'm studying Administration at La Salle, it's my second bachelor's degree. My first one was Visual Arts Licenciature, in 2015 at Uniasselvi. 
 
-Enthusiastic about space, geek culture, world conflicts and ancient history. I speak english and I'm learning german. Beyond my work as an administrative assistant, I'm a social media creator and writer, member of the Internacional Academy Woman of Letters, with participation in more than five books of poetry. I also write arthicles about the job market and technology.
+Enthusiastic about space, geek culture, technology, world conflicts and ancient history. I speak english and I'm learning german. Beyond my work as an administrative assistant, I'm a social media creator and writer, member of the Internacional Academy Woman of Letters, with participation in more than five books of poetry. I also write arthicles about the job market and technology.
 
 👉 LinkedIn: https://www.linkedin.com/in/alineac-cunha
 <!--
