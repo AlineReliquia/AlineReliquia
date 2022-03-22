@@ -1,7 +1,7 @@
 ### Hello 👋
 Who's Aline Cunha Silva? 🤷‍♀️
 
-<img align="center" alt="GIF" src="https://user-images.githubusercontent.com/88294807/159495758-da94f1d9-f16e-4f26-ad7d-997744a31f8e.png" width="300px" />
+<img align="center" alt="GIF" src="https://user-images.githubusercontent.com/88294807/159495758-da94f1d9-f16e-4f26-ad7d-997744a31f8e.png" width="250px" />
 
 🤓 Studying Administration at La Salle
 
