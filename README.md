@@ -6,8 +6,6 @@ My name is Aline, I'm 30 years old. I live in Canoas/RS, with my wife and our pe
 
 Enthusiastic about space, geek culture, world conflicts and ancient history. I speak english and I'm learning german. Beyond my work as an administrative assistant, I'm a social media creator and author, member of the Internacional Academy Woman of Letters, with participation in more than five books of poetry. I also write arthicles about the job market and technology.
 
-📫 How to reach me:
-
 👉 LinkedIn: https://www.linkedin.com/in/alineac-cunha
 <!--
 **AlineReliquia/AlineReliquia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
