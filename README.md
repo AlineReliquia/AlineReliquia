@@ -1,6 +1,8 @@
 ### Hello 👋
 Who's Aline Cunha Silva? 🤷‍♀️
 
+<img align="right" alt="GIF" src="https://user-images.githubusercontent.com/88294807/159494557-12f93172-4302-41de-9fa0-11806c6ab5e1.png" width="400px" />()
+
 🤓 Studying Administration at La Salle
 
 👩‍🎓 Graduated in Visual Arts Licenciature at Uniasselvi in 2015
